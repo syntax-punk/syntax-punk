@@ -1,3 +1,3 @@
 ### Hi everyone 👋
 
-I'm David and I create stuff.
+I'm David. I notice things and I create stuff.
